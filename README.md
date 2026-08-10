@@ -97,5 +97,5 @@ I'm the sun irl trust.
 
 
 
- i look charming right?
-  [![8ed69555edd9ce83a3ec05d8e79fa91a.jpg](https://i.postimg.cc/zv92nr26/8ed69555edd9ce83a3ec05d8e79fa91a.jpg)](https://postimg.cc/q6xGT9Tx)
+ i look charming right?!
+[![8ed69555edd9ce83a3ec05d8e79fa91a.jpg](https://i.postimg.cc/zv92nr26/8ed69555edd9ce83a3ec05d8e79fa91a.jpg)](https://postimg.cc/q6xGT9Tx)
