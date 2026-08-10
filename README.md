@@ -22,7 +22,7 @@ but my reply is kinda slow + I'm a slow writer.. so pls be patient with me.
 
 I'm the sun irl trust.
 [![Untitled102-20260810232437.png](https://i.postimg.cc/Kzs3pv2Y/Untitled102-20260810232437.png)](https://postimg.cc/hzTGfnhF)
-  [!
+
 
 
 
