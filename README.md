@@ -21,16 +21,6 @@ but my reply is kinda slow + I'm a slow writer.. so pls be patient with me.
 
 I'm the sun irl trust.
 [![Untitled102-20260810232437.png](https://i.postimg.cc/Kzs3pv2Y/Untitled102-20260810232437.png)](https://postimg.cc/hzTGfnhF)
-
-
-
-
-
-
-
-[![3ab2e7929832f23e3fab80c8deb79c29.gif](https://i.postimg.cc/BnTdsjtL/3ab2e7929832f23e3fab80c8deb79c29.gif)](https://postimg.cc/YvSXzq6M)
-
-
   [![ce6dd6897415c8483cbb80766a001549.gif](https://i.postimg.cc/Y01YsBqJ/ce6dd6897415c8483cbb80766a001549.gif)](https://postimg.cc/H8krrKM2)
 
 
