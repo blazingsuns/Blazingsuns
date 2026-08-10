@@ -7,10 +7,11 @@ hellohello.
 
 
 I'm friendly ISTG, i don't bite bmf.
+
 I'm jst like this kitty ↓
 [![1f9cb9b8d14dc6a5670f7ccbac5f24a2.gif](https://i.postimg.cc/QN5t5qz7/1f9cb9b8d14dc6a5670f7ccbac5f24a2.gif)](https://postimg.cc/4nfsRps4)
 
-PLUS see straw page to know more abt me.
+PLUS look at my straw page to know more info me.
 [![a6abde12cb73deeb73214e277fd58ef0.gif](https://i.postimg.cc/wBmKPwL5/a6abde12cb73deeb73214e277fd58ef0.gif)](https://postimg.cc/wtgbRcW3)
 
 
