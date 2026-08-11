@@ -27,7 +27,7 @@ I'm the sun irl  ^_^!.
 [![Untitled102-20260810232437.png](https://i.postimg.cc/Kzs3pv2Y/Untitled102-20260810232437.png)](https://postimg.cc/hzTGfnhF)
 
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=B47B29&width=435&lines=%22so..%22;%22you+don't+believe+me%3F.%22;%22well..%22;%22I'll+make+sure+easy.%22;%22I'll+Burst+open+the+seams.%22;%22with+you+standing+next+to+me.%22+;%22what+look+like+raisins.%22;%22are+plastered+on+my+skin.%22;%22naturally..%22;%22occuring+monster+making+condition.%22)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=100&color=CA8039&width=435&lines=%22so...%22;%22you+don't+believe+me%3F.%22;%22well.%22;%22I'll+make+it+easy..%22;%22I'll+Burst+open+the+seams.%22;%22with+you+standing+next+to+me.%22;%22What+look+like+raisins.%22;%22Are+plastered+on+my+skin.%22;%22Naturally.%22;%22occuring+monster+making+condition.%22;%22its+not+the+effect+of+poison+ivy.%22;%22i+hiking+careful.%22;%22how+come+they+want+me+on+TV.%22;%22Am+i+really+that+much+of+a+freak%3F.%22;%22why+ever+would+i+come+out+of+hiding.%22;%22When+nobody's+nice+to+me%3F.%22;%22how+could+anyone+think+I'm+lovely%3F.%22)](https://git.io/typing-svg)
 
 
 [![20aa91520064034eaffc9acf2e6e7c8c.jpg](https://i.postimg.cc/SK0r0QbT/20aa91520064034eaffc9acf2e6e7c8c.jpg)](https://postimg.cc/18H6wQtw)
