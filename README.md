@@ -1,4 +1,4 @@
-hellohello.
+trust.
 
 
 [![ab4cb1aba5a2e59211a4ec0fcbb49ec3.gif](https://i.postimg.cc/NFvzWYYD/ab4cb1aba5a2e59211a4ec0fcbb49ec3.gif)](https://postimg.cc/FdGpLMYk)
@@ -21,7 +21,7 @@ I'm in pony 24/7 , feel free to interact always, i sit in the docks or with oomf
 [![e60425cd6fb097ba43c04d2a06133aef.jpg](https://i.postimg.cc/VNjGnpXn/e60425cd6fb097ba43c04d2a06133aef.jpg)](https://postimg.cc/NyjkwNJj)
 
 
-I'm the sun irl trust ^_^!.
+I'm the sun irl  ^_^!.
 [![Untitled102-20260810232437.png](https://i.postimg.cc/Kzs3pv2Y/Untitled102-20260810232437.png)](https://postimg.cc/hzTGfnhF)
 
 
