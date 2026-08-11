@@ -1,4 +1,5 @@
-hellohello.
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=B47B29&width=435&lines=%22the+sun+has+arrived!...%22)](https://git.io/typing-svg)
+hellohelloo.
 
 
 [![ab4cb1aba5a2e59211a4ec0fcbb49ec3.gif](https://i.postimg.cc/NFvzWYYD/ab4cb1aba5a2e59211a4ec0fcbb49ec3.gif)](https://postimg.cc/FdGpLMYk)
@@ -26,7 +27,7 @@ I'm the sun irl  ^_^!.
 [![Untitled102-20260810232437.png](https://i.postimg.cc/Kzs3pv2Y/Untitled102-20260810232437.png)](https://postimg.cc/hzTGfnhF)
 
 
-
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=B47B29&width=435&lines=%22so..%22;%22you+don't+believe+me%3F.%22;%22well..%22;%22I'll+make+sure+easy.%22;%22I'll+Burst+open+the+seams.%22;%22with+you+standing+next+to+me.%22+;%22what+look+like+raisins.%22;%22are+plastered+on+my+skin.%22;%22naturally..%22;%22occuring+monster+making+condition.%22)](https://git.io/typing-svg)
 
 
 [![20aa91520064034eaffc9acf2e6e7c8c.jpg](https://i.postimg.cc/SK0r0QbT/20aa91520064034eaffc9acf2e6e7c8c.jpg)](https://postimg.cc/18H6wQtw)
