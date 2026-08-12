@@ -6,8 +6,7 @@ hellohelloo.
 
 [![b8545c56289fe1c9b33290556a5e7b5e.jpg](https://i.postimg.cc/cHb23p8q/b8545c56289fe1c9b33290556a5e7b5e.jpg)](https://postimg.cc/Pp1SsF4K)
 
-[![a48f90663b22aa771409fc4f1766a092.gif](https://i.postimg.cc/SKvmQPVt/a48f90663b22aa771409fc4f1766a092.gif)](https://postimg.cc/zLKs00sn)
-
+[![Untitled109-20260812102829.png](https://i.postimg.cc/KjP4cyWm/Untitled109-20260812102829.png)](https://postimg.cc/4H3XwjZ0)
 
 
 I'm friendly ISTG, i don't bite bmf.
