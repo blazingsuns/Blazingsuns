@@ -1,9 +1,9 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=B47B29&width=435&lines=%22the+sun+has+arrived!...%22)](https://git.io/typing-svg)
-hellohelloo.
+
 
 
 [![ab4cb1aba5a2e59211a4ec0fcbb49ec3.gif](https://i.postimg.cc/NFvzWYYD/ab4cb1aba5a2e59211a4ec0fcbb49ec3.gif)](https://postimg.cc/FdGpLMYk)
-
+[![Untitled111-20260812182053.png](https://i.postimg.cc/4dwFDKJQ/Untitled111-20260812182053.png)](https://postimg.cc/sQQcSgGM)
 [![b8545c56289fe1c9b33290556a5e7b5e.jpg](https://i.postimg.cc/cHb23p8q/b8545c56289fe1c9b33290556a5e7b5e.jpg)](https://postimg.cc/Pp1SsF4K)
 
 [![Untitled109-20260812102829.png](https://i.postimg.cc/KjP4cyWm/Untitled109-20260812102829.png)](https://postimg.cc/4H3XwjZ0)
