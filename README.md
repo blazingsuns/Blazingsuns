@@ -3,10 +3,9 @@
 
 
 [![ab4cb1aba5a2e59211a4ec0fcbb49ec3.gif](https://i.postimg.cc/NFvzWYYD/ab4cb1aba5a2e59211a4ec0fcbb49ec3.gif)](https://postimg.cc/FdGpLMYk)
-[![Untitled111-20260812182053.png](https://i.postimg.cc/4dwFDKJQ/Untitled111-20260812182053.png)](https://postimg.cc/sQQcSgGM)
 [![b8545c56289fe1c9b33290556a5e7b5e.jpg](https://i.postimg.cc/cHb23p8q/b8545c56289fe1c9b33290556a5e7b5e.jpg)](https://postimg.cc/Pp1SsF4K)
 
-[![Untitled109-20260812102829.png](https://i.postimg.cc/KjP4cyWm/Untitled109-20260812102829.png)](https://postimg.cc/4H3XwjZ0)
+[![Untitled111-20260812182053.png](https://i.postimg.cc/4dwFDKJQ/Untitled111-20260812182053.png)](https://postimg.cc/sQQcSgGM)
 
 
 I'm friendly ISTG, i don't bite bmf.
@@ -24,7 +23,7 @@ I'm in pony 24/7 -safe serv /2# safe serv , feel free to interact always, i sit 
 
 I'm the sun irl  ^_^!.
 [![Untitled102-20260810232437.png](https://i.postimg.cc/Kzs3pv2Y/Untitled102-20260810232437.png)](https://postimg.cc/hzTGfnhF)
-
+[![Untitled109-20260812102829.png](https://i.postimg.cc/KjP4cyWm/Untitled109-20260812102829.png)](https://postimg.cc/4H3XwjZ0)
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=100&color=CA8039&width=435&lines=%22so...%22;%22you+don't+believe+me%3F.%22;%22well.%22;%22I'll+make+it+easy..%22;%22I'll+Burst+open+the+seams.%22;%22with+you+standing+next+to+me.%22;%22What+look+like+raisins.%22;%22Are+plastered+on+my+skin.%22;%22Naturally.%22;%22occuring+monster+making+condition.%22;%22its+not+the+effect+of+poison+ivy.%22;%22i+hiking+careful.%22;%22how+come+they+want+me+on+TV.%22;%22Am+i+really+that+much+of+a+freak%3F.%22;%22why+ever+would+i+come+out+of+hiding.%22;%22When+nobody's+nice+to+me%3F.%22;%22how+could+anyone+think+I'm+lovely%3F.%22)](https://git.io/typing-svg)
 
@@ -40,7 +39,7 @@ I'm the sun irl  ^_^!.
      
 
 
-     
+  [![Untitled109-20260812102829.png](https://i.postimg.cc/KjP4cyWm/Untitled109-20260812102829.png)](https://postimg.cc/4H3XwjZ0)[![Untitled109-20260812102829.png](https://i.postimg.cc/KjP4cyWm/Untitled109-20260812102829.png)](https://postimg.cc/4H3XwjZ0)[![Untitled109-20260812102829.png](https://i.postimg.cc/KjP4cyWm/Untitled109-20260812102829.png)](https://postimg.cc/4H3XwjZ0)[![Untitled109-20260812102829.png](https://i.postimg.cc/KjP4cyWm/Untitled109-20260812102829.png)](https://postimg.cc/4H3XwjZ0)[![Untitled109-20260812102829.png](https://i.postimg.cc/KjP4cyWm/Untitled109-20260812102829.png)](https://postimg.cc/4H3XwjZ0)   
   
 
 
