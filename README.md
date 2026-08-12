@@ -4,7 +4,7 @@ hellohelloo.
 
 [![ab4cb1aba5a2e59211a4ec0fcbb49ec3.gif](https://i.postimg.cc/NFvzWYYD/ab4cb1aba5a2e59211a4ec0fcbb49ec3.gif)](https://postimg.cc/FdGpLMYk)
 
-[![Untitled110-20260812103426.png](https://i.postimg.cc/htvmyNJc/Untitled110-20260812103426.png)](https://postimg.cc/4YCnnLbS)
+
 
 [![a48f90663b22aa771409fc4f1766a092.gif](https://i.postimg.cc/SKvmQPVt/a48f90663b22aa771409fc4f1766a092.gif)](https://postimg.cc/zLKs00sn)
 
