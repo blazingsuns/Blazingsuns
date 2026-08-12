@@ -4,7 +4,7 @@ hellohelloo.
 
 [![ab4cb1aba5a2e59211a4ec0fcbb49ec3.gif](https://i.postimg.cc/NFvzWYYD/ab4cb1aba5a2e59211a4ec0fcbb49ec3.gif)](https://postimg.cc/FdGpLMYk)
 
-[![b8545c56289fe1c9b33290556a5e7b5e.jpg](https://i.postimg.cc/rmXY9CpQ/b8545c56289fe1c9b33290556a5e7b5e.jpg)](https://postimg.cc/v1hzYnfV)
+[![Untitled110-20260812103426.png](https://i.postimg.cc/htvmyNJc/Untitled110-20260812103426.png)](https://postimg.cc/4YCnnLbS)
 
 [![a48f90663b22aa771409fc4f1766a092.gif](https://i.postimg.cc/SKvmQPVt/a48f90663b22aa771409fc4f1766a092.gif)](https://postimg.cc/zLKs00sn)
 
@@ -13,7 +13,7 @@ hellohelloo.
 I'm friendly ISTG, i don't bite bmf.
 [![1f9cb9b8d14dc6a5670f7ccbac5f24a2.gif](https://i.postimg.cc/QN5t5qz7/1f9cb9b8d14dc6a5670f7ccbac5f24a2.gif)](https://postimg.cc/4nfsRps4)
       (it kinda look like tsc am i right?)
-
+[![Untitled109-20260812103126.png](https://i.postimg.cc/mDCC3MPV/Untitled109-20260812103126.png)](https://postimg.cc/0M5zPzdJ)
 look at my sp if u want to know more info abt me.
 [![a6abde12cb73deeb73214e277fd58ef0.gif](https://i.postimg.cc/wBmKPwL5/a6abde12cb73deeb73214e277fd58ef0.gif)](https://postimg.cc/wtgbRcW3)
 
@@ -22,7 +22,7 @@ look at my sp if u want to know more info abt me.
 I'm in pony 24/7 -safe serv /2# safe serv , feel free to interact always, i sit in the docks or with oomf, when u int my reply is kinda slow+I'm a slow writer so please be patient.
 [![e60425cd6fb097ba43c04d2a06133aef.jpg](https://i.postimg.cc/VNjGnpXn/e60425cd6fb097ba43c04d2a06133aef.jpg)](https://postimg.cc/NyjkwNJj)
 
-
+[![Untitled109-20260812103126.png](https://i.postimg.cc/mDCC3MPV/Untitled109-20260812103126.png)](https://postimg.cc/0M5zPzdJ)
 I'm the sun irl  ^_^!.
 [![Untitled102-20260810232437.png](https://i.postimg.cc/Kzs3pv2Y/Untitled102-20260810232437.png)](https://postimg.cc/hzTGfnhF)
 
