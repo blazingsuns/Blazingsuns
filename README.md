@@ -13,7 +13,7 @@ hellohelloo.
 I'm friendly ISTG, i don't bite bmf.
 [![1f9cb9b8d14dc6a5670f7ccbac5f24a2.gif](https://i.postimg.cc/QN5t5qz7/1f9cb9b8d14dc6a5670f7ccbac5f24a2.gif)](https://postimg.cc/4nfsRps4)
       (it kinda look like tsc am i right?)
-[![Untitled109-20260812103126.png](https://i.postimg.cc/mDCC3MPV/Untitled109-20260812103126.png)](https://postimg.cc/0M5zPzdJ)
+
 look at my sp if u want to know more info abt me.
 [![a6abde12cb73deeb73214e277fd58ef0.gif](https://i.postimg.cc/wBmKPwL5/a6abde12cb73deeb73214e277fd58ef0.gif)](https://postimg.cc/wtgbRcW3)
 
