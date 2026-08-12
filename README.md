@@ -22,7 +22,7 @@ look at my sp if u want to know more info abt me.
 I'm in pony 24/7 -safe serv /2# safe serv , feel free to interact always, i sit in the docks or with oomf, when u int my reply is kinda slow+I'm a slow writer so please be patient.
 [![e60425cd6fb097ba43c04d2a06133aef.jpg](https://i.postimg.cc/VNjGnpXn/e60425cd6fb097ba43c04d2a06133aef.jpg)](https://postimg.cc/NyjkwNJj)
 
-[![Untitled109-20260812103126.png](https://i.postimg.cc/mDCC3MPV/Untitled109-20260812103126.png)](https://postimg.cc/0M5zPzdJ)
+
 I'm the sun irl  ^_^!.
 [![Untitled102-20260810232437.png](https://i.postimg.cc/Kzs3pv2Y/Untitled102-20260810232437.png)](https://postimg.cc/hzTGfnhF)
 
