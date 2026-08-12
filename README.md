@@ -19,7 +19,7 @@ look at my sp if u want to know more info abt me.
 
 [![9d89d9ff6c8b343699a35bdb0e361121.jpg](https://i.postimg.cc/FzFpPPXp/9d89d9ff6c8b343699a35bdb0e361121.jpg)](https://postimg.cc/zbMTvFBH)
 
-I'm in pony 24/7 , feel free to interact always, i sit in the docks or with oomf, when u int my reply is kinda slow+I'm a slow writer so please be patient.
+I'm in pony 24/7 -safe serv /2# safe serv , feel free to interact always, i sit in the docks or with oomf, when u int my reply is kinda slow+I'm a slow writer so please be patient.
 [![e60425cd6fb097ba43c04d2a06133aef.jpg](https://i.postimg.cc/VNjGnpXn/e60425cd6fb097ba43c04d2a06133aef.jpg)](https://postimg.cc/NyjkwNJj)
 
 
