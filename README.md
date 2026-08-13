@@ -19,7 +19,7 @@ look at my sp if u want to know more info abt me.
 I'm in pony 24/7 -safe serv /2# safe serv , feel free to interact always, i sit in the docks or with oomf, when u int my reply is kinda slow+I'm a slow writer so please be patient.
 (i won't int first at all.. cuz I'm socially awkward.. and don't know how to talk to ppl tbh.)
 +
-my mood snap randomly, so if i sounded mean to u or dry ,it depends if u did something made me uncomfortable or its just my mood soo dw!.
+my mood snap randomly, so if i sounded mean to u or dry ,it depends if u did something made me uncomfortable or its just my mood soo dw.
 [![e60425cd6fb097ba43c04d2a06133aef.jpg](https://i.postimg.cc/VNjGnpXn/e60425cd6fb097ba43c04d2a06133aef.jpg)](https://postimg.cc/NyjkwNJj)
 
 
