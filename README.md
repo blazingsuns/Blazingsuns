@@ -3,9 +3,8 @@
 [![Untitled117-20260814151703.png](https://i.postimg.cc/y6LV0ywr/Untitled117-20260814151703.png)](https://postimg.cc/3WD5Tmrg)
 [![462c4b16c1c6614b0c30428d4e03cbab.jpg](https://i.postimg.cc/zXP2wyD8/462c4b16c1c6614b0c30428d4e03cbab.jpg)](https://postimg.cc/dLr9wtTx)
 int/bmf freely but pls read the straw before intin'
-, we're in pt 24/7.
-but pls iwc , these days we don't feel well.
-kinda tired, but its going to be for a period of time so ye 
+pt 24/7.
+but pls iwc. 
 [![04865cd8fff90400024eec1ffcc40306.jpg](https://i.postimg.cc/Rh6VWrpJ/04865cd8fff90400024eec1ffcc40306.jpg)](https://postimg.cc/wRzdrrp9)
 
 [![Tumblr-l-14156453922150-jpg.png](https://i.postimg.cc/hj5MLwgd/Tumblr-l-14156453922150-jpg.png)](https://postimg.cc/WF0Mj5dN)
