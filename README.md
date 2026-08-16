@@ -3,7 +3,7 @@
 [![75cefc0630d5ba679598489a9fc8fba4.jpg](https://i.postimg.cc/sfTT2JBV/75cefc0630d5ba679598489a9fc8fba4.jpg)](https://postimg.cc/jCJHgPQ9)
 [![tumblr-f313ef6178ee7be9ec8a497d79bc68cb-24259886-1280.png](https://i.postimg.cc/8Cq3Kzbd/tumblr-f313ef6178ee7be9ec8a497d79bc68cb-24259886-1280.png)](https://postimg.cc/f3fBkZpk)
 int/bmf freely but pls iwc and read strawpage,
-in pt 24/7[![089ff677.gif](https://i.postimg.cc/Sj04FGqQ/089ff677.gif)](https://postimg.cc/fSvpYmJ1)
+in pt 24/7(not always, sometimes take alil break)[![089ff677.gif](https://i.postimg.cc/Sj04FGqQ/089ff677.gif)](https://postimg.cc/fSvpYmJ1)
 istp, 4teen.
 [![tumblr-d3615cc187f6253cf271db2d12a53aa0-e65b40a7-250.gif](https://i.postimg.cc/13wGQR0m/tumblr-d3615cc187f6253cf271db2d12a53aa0-e65b40a7-250.gif)](https://postimg.cc/mPZz3s6J) [![8501bd6a.png](https://i.postimg.cc/bvY99cnC/8501bd6a.png)](https://postimg.cc/BjyFJzMH)
 [![tumblr-3e3dfa9b95782ea39fc408daababc6fc-24c568c7-250.gif](https://i.postimg.cc/T33x8hvx/tumblr-3e3dfa9b95782ea39fc408daababc6fc-24c568c7-250.gif)](https://postimg.cc/kBzzKJ5Y) [![e2d85237.gif](https://i.postimg.cc/W3Czzgj6/e2d85237.gif)](https://postimg.cc/sQPs0BMv)
